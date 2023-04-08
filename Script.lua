@@ -1,1 +1,0 @@
-https://linkvertise.com/625996/896.1124694422411/dynamic?r=aHR0cHM6Ly9jZG4uZGlzY29yZGFwcC5jb20vYXR0YWNobWVudHMvOTIyODIzNzUxMTI3NjgzMDgyLzEwOTQzMzk3MjQ2Mjc0MjczODgvUHJvdGVjdGVkLmx1YQ%3D%3D&o=sharing
